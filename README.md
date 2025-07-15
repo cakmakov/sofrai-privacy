@@ -22,7 +22,7 @@ Uygulama içerisinde kişisel veri işlenmediğinden, herhangi bir kullanıcı v
 
 Gizlilik politikamız hakkında sorularınız varsa bizimle şu adresten iletişime geçebilirsiniz:
 
-**cakmakov@gmail.com**
+**i.anil.cakmak@gmail.com**
 
 ---
 
